@@ -1,0 +1,2 @@
+# ozur.txt
+Özür icindjr
